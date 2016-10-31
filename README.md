@@ -16,4 +16,4 @@
  ![4-niklaus-troxler](4-niklaus-troxler.jpg "4-niklaus-troxler")
  
  ![body](body.jpg "body")
- !
+ ![kanye-west-life-of-pablo-art-2016-billboard-650](https://github.com/Dirtyart1/one-tweet-research/blob/master/kanye-west-life-of-pablo-art-2016-billboard-650.jpg "kanye-west-life-of-pablo-art-2016-billboard-650")
